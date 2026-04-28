@@ -16,6 +16,6 @@
 ok bue
 
 <p align="center">
-<img src="https://media1.tenor.com/m/kiFnG31Hq_UAAAAd/lego-lego-ninjago.gif" alt="a close up of a lego ninjago character wearing a white hood"/>
+<img src="https://media1.tenor.com/m/sS-5d-wO4GgAAAAC/lego-ninjago-ninjago.gif" alt="a lego figure is standing in front of a punching bag"/>
 </p>
                               
