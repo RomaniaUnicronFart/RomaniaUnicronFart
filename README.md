@@ -14,6 +14,7 @@
 
 
 ok bue
+    TYSM FOR ALL OF THE PEOPLE SIGNING MY STRAW EVERY SINGLE ONE OF U GUYS ARE AMAZING ARTISTTSHSHBCnjnC AA  🥹🥹🥹🥹🥹
 
 <p align="center">
 <img src="https://media1.tenor.com/m/sS-5d-wO4GgAAAAC/lego-ninjago-ninjago.gif" alt="a lego figure is standing in front of a punching bag"/>
